@@ -1,2 +1,3 @@
 # hellow-world
 beauty
+I am a simple person, kind, with many goals to fulfill, I have a beautiful daughter whom I love, and a consolidated home. I believe in God and myself .... I like the photos, the good food and the chocolate ...
